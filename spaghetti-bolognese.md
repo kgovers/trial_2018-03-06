@@ -3,6 +3,7 @@
 ## Combines With
 
 This dish can be combined with tomato soup and bread for an excellent and tasty experience.
+This recipe also combines very well with "Jalapeno Poppers".
 
 ## Ingredients
 
